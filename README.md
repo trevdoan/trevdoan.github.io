@@ -1,3 +1,0 @@
-# trevdoan.github.io
-
-Welcome!
